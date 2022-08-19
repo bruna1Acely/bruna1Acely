@@ -1,0 +1,2 @@
+- 👋Oi, eu sou @bruna1Acely
+- 📫 bruna.josianedos.santos@escola.pr.gov.br
